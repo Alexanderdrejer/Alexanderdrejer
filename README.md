@@ -1,0 +1,5 @@
+- 👋 Hej! Jeg hedder Alexander.
+- 👀 Jeg har en stor passion for epidemiologisk forskning. 
+- 🌱 Jeg håber at videreudvikle mig fagligt og blive endnu dygtigere til at lave biostatistiske analyser.
+- 💞️ Jeg drømmer om en karriere indenfor forskning og drømmer om et samarbejde herindenfor.
+- 📫 Kontakt mig på alexander.k.drejer@gmail.com
